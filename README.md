@@ -1,5 +1,5 @@
 Salut !
 
-Je m'appelle Louis-Max et j'aime faire tout plein de trucs cool :)
+Je m'appelle Louis-Max et je ne m'ennuie pas,
 
-Escalades, scoutisme, programmation et mathématiques à plein temps (quand il m'en reste) 
+Escalade, scoutisme, programmation et mathématiques à plein temps 
