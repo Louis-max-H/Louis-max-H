@@ -1,5 +1,5 @@
 Salut !
 
-Je m'appelle Louis-Max et je ne m'ennuie pas,
+Je m'appelle Louis-Max, n'hésite pas à passer me voir si besoin,
 
-Escalade, scoutisme, programmation et mathématiques à plein temps 
+Escalade, scoutisme, programmation et mathématiques à plein temps.
