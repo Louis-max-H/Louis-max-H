@@ -1,5 +1,2 @@
-Salut !
-
-Je m'appelle Louis-Max, n'hésite pas à passer me voir si besoin,
-
-Escalade, scoutisme, programmation et mathématiques à plein temps.
+Salut, je m'appelle Louis-max
+Si l'envie t'en prends n'hésite pas à passer me voir, on ira en forêt.
