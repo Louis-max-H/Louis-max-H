@@ -1,2 +1,2 @@
 Salut, je m'appelle Louis-max
-Si l'envie t'en prends n'hésite pas à passer me voir, on ira en forêt.
+Si l'envie t'en prends n'hésite pas à passer me voir,
